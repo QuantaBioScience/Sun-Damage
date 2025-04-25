@@ -31,7 +31,7 @@ https://www.cancerresearchuk.org/about-cancer/melanoma/stages-types/breslow-thic
 
 https://www.researchgate.net/figure/The-lesion-over-the-sole-of-patients-right-foot-measuring-15-20mm-in-diameter_fig1_51096990
 
-https://www.researchgate.net/figure/The-lesion-over-the-sole-of-patients-right-foot-measuring-15-20mm-in-diameter_fig1_51096990
+https://www.verywellhealth.com/what-is-melanoma-514215
 
 # my: Foot (has)-> acral lentiginous melanoma
 https://www.google.com/search?q=acral+lentiginous
