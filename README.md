@@ -25,6 +25,14 @@ https://www.google.com/search?q=breslow+thickness
 
 https://www.google.com/search?q=Stage+cT3aN0+melanoma
 
+https://www.google.com/search?q=breslow+thickness&oq=Breslow+thickness
+
+https://www.cancerresearchuk.org/about-cancer/melanoma/stages-types/breslow-thickness
+
+https://www.researchgate.net/figure/The-lesion-over-the-sole-of-patients-right-foot-measuring-15-20mm-in-diameter_fig1_51096990
+
+https://www.researchgate.net/figure/The-lesion-over-the-sole-of-patients-right-foot-measuring-15-20mm-in-diameter_fig1_51096990
+
 # my: Foot (has)-> acral lentiginous melanoma
 https://www.google.com/search?q=acral+lentiginous
 https://www.google.com/search?q=acral+lentiginous+melanoma
