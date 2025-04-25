@@ -24,3 +24,7 @@ https://nextstepsinderm.com/derm-topics/case-series-of-acral-and-mucosal-melanom
 https://www.google.com/search?q=breslow+thickness
 
 https://www.google.com/search?q=Stage+cT3aN0+melanoma
+
+# my: Foot
+https://www.google.com/search?q=acral+and+mucosal+melanoma
+https://www.researchgate.net/figure/The-lesion-over-the-sole-of-patients-right-foot-measuring-15-20mm-in-diameter_fig1_51096990
