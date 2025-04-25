@@ -16,3 +16,11 @@ https://www.verywellhealth.com/stage-4-melanoma-5101631
 https://www.verywellhealth.com/melanin-8665833
 
 https://www.verywellhealth.com/what-is-melanoma-514215
+
+https://www.google.com/search?q=acral+and+mucosal+melanoma
+
+https://nextstepsinderm.com/derm-topics/case-series-of-acral-and-mucosal-melanoma-in-a-diverse-patient-population/
+
+https://www.google.com/search?q=breslow+thickness
+
+https://www.google.com/search?q=Stage+cT3aN0+melanoma
